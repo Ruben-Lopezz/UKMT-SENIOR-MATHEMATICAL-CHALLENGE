@@ -36,3 +36,6 @@ I want to become more confident when facing unfamiliar and challenging problems,
 
 - **If I obtain Gold:** Senior Kangaroo — 18/11/2026
 - **Physics competition:** January 2027
+
+
+[CERTIFICADO UKMT SENIOR 2026 - SILVER.pdf](https://github.com/user-attachments/files/35218401/CERTIFICADO.UKMT.SENIOR.2026.-.SILVER.pdf)
