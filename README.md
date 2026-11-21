@@ -4,7 +4,7 @@
 
 - **The competition was on:** 07/10/2026
 - **How did I participate:** Through King's College (Alicante), which hosted the competition
-- **Result:** Waiting for my score (the score will be updated when it is given)
+- **Result:** 61 points (Silver)
 
 ## Preparation
 
